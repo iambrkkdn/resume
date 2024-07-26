@@ -7,5 +7,5 @@
 
 ## Education
 **International Information Technologies University**  
-*Bachelor of Science, Computer Science*  
+*Bachelor's Degree in Computer Science*  
 September 2015 - June 2019  
